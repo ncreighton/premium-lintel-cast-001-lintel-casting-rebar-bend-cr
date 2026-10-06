@@ -1,0 +1,2 @@
+# premium-lintel-cast-001-lintel-casting-rebar-bend-cr
+Stop wasting rebar and losing track of your lintel casting specs — this Notion hub turns chaos into a repeatable, error-proof workflow.  The Lintel Casting &amp; Rebar Bend Craft Hub centralizes every detail of your lintel projects, from rebar bending angles to pour schedules. It eliminates guesswork, reduces material waste, and ensures every bend and
